@@ -10,6 +10,7 @@ HostSlim offers a variety of affordable dedicated servers with no contracts, ide
 
 ## HostSlim Coupon Code
 USE PROMOCODE: `IA2WMM73N9`
+
 [Click to see the latest promotions on the official website of HostSlim](https://clients.hostslim.eu/aff.php?aff=240)
 
 ## HostSlim Promotions
